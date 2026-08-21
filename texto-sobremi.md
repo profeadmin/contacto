@@ -1,0 +1,3 @@
+Mi nombre es Sebastián Pérez Piedrahita, soy Profesional en Administración de Empresas graduado de la Universidad del Valle, hago contenido en Tiktok y Youtube de administración de empresas, mi objetivo siempre ha sido contribuir para que las empresas sean más humanas y sean capaces de aprender.
+
+Y también promuevo la educación profesional en administración de empresas para el mejoramiento de conocimientos y competencias para estudiantes y egresados de administración de empresas.
